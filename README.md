@@ -1,0 +1,4 @@
+- Ciao sono Andrea Ferrara, sono  un Toscano DOC e  amo  cucinare.👋
+-  Mi interessa leggere e viaggiare, ma sopratutto sono molto curioso !.👀
+- Attualmente sto facendo l'Università a Firenze, in particolare freuquento un corso di Viticoltura ed enologia. Inoltre sto imparando la programmazione e lo sviluppo WEB su Start2Impact.🌱
+-  Potete raggiungermi  tramite: andreaferrara572@gmail.com,  linkedIn(https://www.linkedin.com/in/ferrarandrea/) e Instagram (https://www.instagram.com/andreaferrara99/).📫
